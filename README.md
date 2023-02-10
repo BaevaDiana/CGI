@@ -1,2 +1,2 @@
 # CGI!
-[31wknj jpg](https://user-images.githubusercontent.com/96077446/218106074-2f1d7d84-5104-4ae7-b6ac-e490162a4156.jpg)
+![31wknj jpg](https://user-images.githubusercontent.com/96077446/218106194-88d90cc9-11a5-4d56-a091-507e04869c11.jpg)
